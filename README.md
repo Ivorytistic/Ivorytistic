@@ -1,6 +1,6 @@
-###< / > This is mainly for ponytown info about me and what to do and not to do or if you wanna know me better < \ >###
+< / > This is mainly for ponytown info about me and what to do and not to do or if you wanna know me better < \ >
 
-#-I dont mind anybody sitting next to me sitting behind me or anything just please dont completely cover my pony or anything
+**I dont mind anybody sitting next to me sitting behind me or anything just please dont completely cover my pony or anything**
 
 #-I allow any kind of form of interaction or affection i dont mind cuddling, you touching me, kissing, etc, i welcome all kinds of affection just dont be weird okay
 
