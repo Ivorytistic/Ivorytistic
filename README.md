@@ -1,12 +1,12 @@
 < / > This is mainly for ponytown info about me and what to do and not to do or if you wanna know me better < \ >
 
-I dont mind anybody sitting next to me sitting behind me or anything just please dont completely cover my pony or anything
+-I dont mind anybody sitting next to me sitting behind me or anything just please dont completely cover my pony or anything
 
-I allow any kind of form of interaction or affection i dont mind cuddling, you touching me, kissing, etc, i welcome all kinds of affection just dont be weird okay
+-I allow any kind of form of interaction or affection i dont mind cuddling, you touching me, kissing, etc, i welcome all kinds of affection just dont be weird okay
 
-my horn magic/"sparking hair" or wbatever you call it is if not almost always active and im currently happy so if you ever see me with that off it means thats im pretty upset, sad, mad, etc however im feeling
+-my horn magic/"sparking hair" or wbatever you call it is if not almost always active and im currently happy so if you ever see me with that off it means thats im pretty upset, sad, mad, etc however im feeling
 
-i dont really block anybody but ill hide you for 15 minutes or 24 hours, if i really REALLY have to block you i will
+-i dont really block anybody but ill hide you for 15 minutes or 24 hours, if i really REALLY have to block you i will
 
 more will be added soon i think
 
