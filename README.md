@@ -1,4 +1,4 @@
-#< / > This is mainly for ponytown info about me and what to do and not to do or if you wanna know me better < \ >
+###< / > This is mainly for ponytown info about me and what to do and not to do or if you wanna know me better < \ >###
 
 #-I dont mind anybody sitting next to me sitting behind me or anything just please dont completely cover my pony or anything
 
