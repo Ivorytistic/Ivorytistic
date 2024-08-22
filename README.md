@@ -8,6 +8,8 @@
 
 # i dont really block anybody but i will **hide** you for 15 minutes or 24 hours if you make me uncomfy or weirded out, if i really **REALLY** have to block you, i will
 
+# and more importantly for the love of god dont copy my ponies?? i put a bunch of shit ton of effort into them and also just seeing the slightest inspo from my pony thats on yours is gonna upset me, so dont please.
+
 more will be added soon i think
 
 <!--
